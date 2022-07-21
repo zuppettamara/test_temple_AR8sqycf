@@ -1,1 +1,0 @@
-# test_temple_AR8sqycf
